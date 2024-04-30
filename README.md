@@ -1,3 +1,3 @@
 Hey There!
 
-Currently at VILAB, HYU
+Currently at LG Electronics!
